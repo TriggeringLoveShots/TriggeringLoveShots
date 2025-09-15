@@ -1,4 +1,5 @@
-<img src="blob:chrome-untrusted://media-app/f41d645b-4d57-4066-bdc1-ce26f4efb38a" alt=""/><img width="446" height="405" alt="image" src="https://github.com/user-attachments/assets/7d17d693-2124-4d80-8732-5ca9fa49b628"/>
+<img src="blob:chrome-untrusted://media-app/b1abfc3d-8708-443f-b983-786e1de73aa8" alt=""/><img width="598" height="415" alt="image" src="https://github.com/user-attachments/assets/3e179049-3e6c-4d26-8a03-050281208e18" />
+
 
 ╭◦⋆˚｡            𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
 
@@ -13,6 +14,6 @@ C+H highly encouraged  ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
 ┊➶-͙˚ ༘✶
 
-┊༉‧₊˚.                     ⁀➴ wip
+┊༉‧₊˚.                     ⁀➴ #1 scraps Main + FICTKIN !!
 
 ╰◦⋆˚｡  𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
