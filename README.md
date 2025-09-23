@@ -1,4 +1,5 @@
-<img src="blob:chrome-untrusted://media-app/e1e8677f-13af-4c2c-9811-710d66c887f0" alt=""/><img width="270" height="263" alt="" src="https://github.com/user-attachments/assets/28c44aae-f049-4795-bc55-06c24fcb6139" />
+<img src="blob:chrome-untrusted://media-app/21cbcf9d-17af-4096-8363-750e5c0bc293" alt=""/><img width="225" height="224" alt="image" src="https://github.com/user-attachments/assets/67fa508c-f14a-49b3-a261-fd575301c6e9" />
+
 
 
 ╭◦⋆˚｡            𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
@@ -14,6 +15,6 @@ C+H highly encouraged  ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
 ┊➶-͙˚ ༘✶
 
-┊༉‧₊˚.                     ⁀➴ #1 scraps Main + FICTKIN !!
+┊༉‧₊˚.                     ⁀➴ #1 Fan of Trigger of Love /JAWNY music artist .
 
 ╰◦⋆˚｡  𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
