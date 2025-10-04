@@ -1,20 +1,20 @@
-<img src="blob:chrome-untrusted://media-app/21cbcf9d-17af-4096-8363-750e5c0bc293" alt=""/><img width="225" height="224" alt="image" src="https://github.com/user-attachments/assets/67fa508c-f14a-49b3-a261-fd575301c6e9"/>
+<img src="blob:chrome-untrusted://media-app/d84e7065-45b6-4027-bc9f-441ae6e16206" alt=""/><img width="567" height="610" alt="" src="https://github.com/user-attachments/assets/e10e61b4-cfe5-4e9e-80fe-b2e2265d4b9b" />
 
 
 
 ╭◦⋆˚｡            𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
 
-┊➶˒˚｡    ⁀➴   ︶ ⏝ ︶
-୨୧ ︶ ⏝ ︶ 
+┊☁︎˒˚｡    ⁀☁︎   ︶ ⏝ ︶
+☁︎ . ︶ ⏝ ︶ 
 
-C+H highly encouraged  ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
+C+H highly encouraged  ︶ ⏝ ︶ ☁︎ . ︶ ⏝ ︶
 
 ┊·˚₊⊹
 
-┊⋆·˚ ༘ * "         𓉘𝑶𝒏𝒆 𝒍𝒂𝒔𝒕 𝒌𝒊𝒔𝒔 ͙͘͡★"𓉝 
+┊⋆·˚ ༘ * "         𓉘Interwining fingers  ͙͘͡★"𓉝 
 
-┊➶-͙˚ ༘✶
+┊୧‿̩͙ ˖︵ ꕀ
 
-┊༉‧₊˚.                     ⁀➴ #1 Fan of Trigger of Love /JAWNY music artist .
+┊୧‿̩͙ ˖︵ ꕀ                   ୧‿̩͙  "I'll hold your hands even if they have scars.." 
 
-╰◦⋆˚｡  𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+୧‿̩͙ ˖︵ ꕀ  𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
