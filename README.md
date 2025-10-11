@@ -1,20 +1,21 @@
-<img src="blob:chrome-untrusted://media-app/d84e7065-45b6-4027-bc9f-441ae6e16206" alt=""/><img width="567" height="610" alt="" src="https://github.com/user-attachments/assets/e10e61b4-cfe5-4e9e-80fe-b2e2265d4b9b" />
+<img src="blob:chrome-untrusted://media-app/13a0e66a-166b-46c4-8989-7a696f458448" alt=""/><img width="302" height="396" alt="" src="https://github.com/user-attachments/assets/f59e2375-0ba5-4014-9590-c503370910c2" />
 
 
 
 ╭◦⋆˚｡            𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
 
-┊☁︎˒˚｡    ⁀☁︎   ︶ ⏝ ︶
-☁︎ . ︶ ⏝ ︶ 
+┊🎤︎︎˒˚｡    ⁀🎤︎︎   ︶ ⏝ ︶
+🎤︎︎ . ︶ ⏝ ︶ 
 
-C+H highly encouraged  ︶ ⏝ ︶ ☁︎ . ︶ ⏝ ︶
+C+H highly encouraged  ︶ ⏝ ︶ 🎤︎︎ . ︶ ⏝ ︶
 
 ┊·˚₊⊹
 
-┊⋆·˚ ༘ * "         𓉘Interwining fingers  ͙͘͡★"𓉝 
+┊⋆·˚ ༘ * "         𓉘▶• ılıılıılıılıılıılı. 0𓉝 
 
-┊୧‿̩͙ ˖︵ ꕀ
+┊୧‿̩͙ ˖︵ ꕀ Art by @ItsMaYumi2 on X(Twitter)
 
-┊୧‿̩͙ ˖︵ ꕀ                   ୧‿̩͙  "I'll hold your hands even if they have scars.." 
+
+┊୧‿̩͙ ˖︵ ꕀ                   ୧‿̩͙  " 'Cause i'm six feet under nearly and I don't have no one" . ..
 
 ୧‿̩͙ ˖︵ ꕀ  𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
