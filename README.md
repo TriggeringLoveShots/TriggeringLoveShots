@@ -1,13 +1,13 @@
-<img src="blob:chrome-untrusted://media-app/13a0e66a-166b-46c4-8989-7a696f458448" alt=""/><img width="302" height="396" alt="" src="https://github.com/user-attachments/assets/f59e2375-0ba5-4014-9590-c503370910c2" />
+<img src="blob:chrome-untrusted://media-app/9c311793-6eb1-44f5-88e8-395668b23e42" alt=""/><img width="484" height="594" alt="image" src="https://github.com/user-attachments/assets/a98619d1-fd85-4155-a0c3-7101fa9fe8de" />
 
 
 
 ╭◦⋆˚｡            𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
 
-┊🎤︎︎˒˚｡    ⁀🎤︎︎   ︶ ⏝ ︶
-🎤︎︎ . ︶ ⏝ ︶ 
+︶ ⏝ ˚｡    ִֶָ☾.  ︶ ⏝ ︶
+ִֶָ☾.︎ . ︶ ⏝ ︶ 
 
-C+H highly encouraged  ︶ ⏝ ︶ 🎤︎︎ . ︶ ⏝ ︶
+C+H highly encouraged  ︶ ⏝ ︶ִֶָ☾. . ︶ ⏝ ︶
 
 ┊·˚₊⊹
 
