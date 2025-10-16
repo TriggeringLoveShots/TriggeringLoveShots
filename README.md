@@ -7,7 +7,7 @@
 ︶ ⏝ ˚｡    ִֶָ☾.  ︶ ⏝ ︶
 ִֶָ☾.︎ . ︶ ⏝ ︶ 
 
-C+H highly encouraged  ︶ ⏝ ︶ִֶָ☾. . ︶ ⏝ ︶
+even if were friends- Geniunely and sadly i'm to anixous to go over to you myself,anyone freely c+h me/Cover comf!!  ︶ ⏝ ︶ִֶָ☾. . ︶ ⏝ ︶ 
 
 ┊·˚₊⊹
 
