@@ -4,7 +4,8 @@
 
    ╭◦⋆˚｡            𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
 
-                ︶ ⏝ ˚｡    ִֶָ☾.  ︶ ⏝ ︶
+
+   ︶ ⏝ ˚｡    ִֶָ☾.  ︶ ⏝ ︶
  ִֶָ       ☾.︎ . ︶ ⏝ ︶ 
 
 even if were friends- Geniunely and sadly i'm to anixous to go over to you myself,anyone freely c+h me/Cover comf!!  ︶ ⏝ ︶ִֶָ☾. . ︶ ⏝ ︶ 
@@ -18,4 +19,4 @@ even if were friends- Geniunely and sadly i'm to anixous to go over to you mysel
 
 ┊୧‿̩͙ ˖︵ ꕀ                   ୧‿̩͙  " 'Cause i'm six feet under nearly and I don't have no one" . ..
 
-          ୧‿̩͙ ˖︵ ꕀ  𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
+   ୧‿̩͙ ˖︵ ꕀ  𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
