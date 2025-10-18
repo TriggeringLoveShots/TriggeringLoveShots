@@ -8,7 +8,7 @@
    ︶ ⏝ ˚｡    ִֶָ☾.  ︶ ⏝ ︶
  ִֶָ       ☾.︎ . ︶ ⏝ ︶ 
 
-even if were friends- Geniunely and sadly i'm to anixous to go over to you myself,anyone freely c+h me/Cover comf!!  ︶ ⏝ ︶ִֶָ☾. . ︶ ⏝ ︶ 
+  ︶ ⏝C+H anytime, ok? ︶ִֶָ☾Huge cover comf. ︶ ⏝ ︶ 
 
 ┊·˚₊⊹
 
@@ -17,6 +17,6 @@ even if were friends- Geniunely and sadly i'm to anixous to go over to you mysel
 ┊୧‿̩͙ ˖︵ ꕀ Art by @abyssaint on X(Twitter)
 
 
-┊୧‿̩͙ ˖︵ ꕀ                   ୧‿̩͙  " 'Cause i'm six feet under nearly and I don't have no one" . ..
+┊୧‿̩͙ ˖︵ ꕀ                ୧‿̩͙  " 'You can freely sit with me, ok?" . ..
 
    ୧‿̩͙ ˖︵ ꕀ  𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡
